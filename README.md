@@ -2,7 +2,7 @@ Project Name:
 ===============================
 ###Pitch Perfect
 
-![alt tag](http://s21.postimg.org/918gl1293/Screen_Shot_2016_02_15_at_13_43_21.png)
+![alt tag](http://s16.postimg.org/yh167r86t/Screen_Shot_2016_02_15_at_14_31_57.png)
 
 Description
 ===============================
